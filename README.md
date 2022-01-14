@@ -1,0 +1,1 @@
+# legacy.usacloud.jp
